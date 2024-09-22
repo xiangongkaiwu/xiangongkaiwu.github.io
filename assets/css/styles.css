@@ -13,6 +13,10 @@ select {
     max-width: 90vh;
 }
 
+a {
+    color: inherit;
+}
+
 @media (prefers-color-scheme: dark) {
     body {
         background-color: #1e1e1e;
