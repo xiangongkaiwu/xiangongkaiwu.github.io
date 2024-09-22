@@ -9,6 +9,10 @@ p {
     text-align: left;
 }
 
+select {
+    max-width: 90vh;
+}
+
 @media (prefers-color-scheme: dark) {
     body {
         background-color: #1e1e1e;
