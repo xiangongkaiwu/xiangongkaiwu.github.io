@@ -33,7 +33,7 @@
             </button>
             <select class="chapter-select" onchange="window.location = this.value">
             {% for chapter in site.chapters %}
-                <option value="{{ chapter.url | relative_url }}">
+            <option value="{{ chapter.url | relative_url }}" {% if chapter.url == page.url %}selected{% endif %}>
                     {{ chapter.title }}
                 </option>
             {% endfor %}
