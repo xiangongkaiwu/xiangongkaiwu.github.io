@@ -11,6 +11,7 @@ p {
 
 select {
     max-width: 90vh;
+    width: 90vh;
 }
 
 a {
