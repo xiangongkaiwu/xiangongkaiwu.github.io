@@ -15,7 +15,7 @@
             </button>
             <select class="chapter-select" onchange="window.location = this.value">
             {% for chapter in site.chapters %}
-                <option value="{{ page.url == chapter.url }}">
+                <option value="{% if page.url == chapter.url %}hundred{% else %}million{% endif %}">
                     {{ chapter.title }}
                 </option>
             {% endfor %}
