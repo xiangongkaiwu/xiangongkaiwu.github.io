@@ -6,11 +6,11 @@
         <title>{{ page.title }}</title>
     </head>
     <body>
-        <button onclick="window.location = {{ site.url | relative_url }}">
+        <button onclick="window.location = '{{ site.url | relative_url }}'">
             Back to Home
         </button>
         <nav>
-            <button class="prev" onclick="{% if page.previous %}window.location = {{page.previous.url | relative_url}}{% endif %}" {% unless page.previous %}disabled{% endunless %}>
+            <button class="prev" onclick="{% if page.previous %}window.location = '{{page.previous.url | relative_url}}'{% endif %}" {% unless page.previous %}disabled{% endunless %}>
                 ← Previous
             </button>
             <select class="chapter-select" onchange="window.location = this.value">
@@ -20,7 +20,7 @@
                 </option>
             {% endfor %}
             </select>
-            <button class="next" onclick="{% if page.next %}window.location = {{ page.next.url | relative_url }}{% endif %}" {% unless page.next %}disabled{% endunless %}>
+            <button class="next" onclick="{% if page.next %}window.location = '{{ page.next.url | relative_url }}'{% endif %}" {% unless page.next %}disabled{% endunless %}>
                 Next →
             </button>
         </nav>
@@ -28,7 +28,7 @@
             {{ content }}
         </main>
         <nav></nav>
-            <button class="prev" onclick="{% if page.previous %}window.location = {{page.previous.url | relative_url}}{% endif %}" {% unless page.previous %}disabled{% endunless %}>
+            <button class="prev" onclick="{% if page.previous %}window.location = '{{page.previous.url | relative_url}}'{% endif %}" {% unless page.previous %}disabled{% endunless %}>
                 ← Previous
             </button>
             <select class="chapter-select" onchange="window.location = this.value">
@@ -38,11 +38,11 @@
                 </option>
             {% endfor %}
             </select>
-            <button class="next" onclick="{% if page.next %}window.location = {{ page.next.url | relative_url }}{% endif %}" {% unless page.next %}disabled{% endunless %}>
+            <button class="next" onclick="{% if page.next %}window.location = '{{ page.next.url | relative_url }}'{% endif %}" {% unless page.next %}disabled{% endunless %}>
                 Next →
             </button>
         </nav>
-        <button onclick="window.location = {{ site.url | relative_url }}"></button>
+        <button onclick="window.location = '{{ site.url | relative_url }}'"></button>
             Back to Home
         </button>
     </body>
