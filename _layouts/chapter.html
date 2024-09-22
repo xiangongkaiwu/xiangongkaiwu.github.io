@@ -6,7 +6,7 @@
         <title>{{ page.title }}</title>
     </head>
     <body>
-        <button onclick="window.location = ''">
+        <button onclick="window.location = {{ site.url | relative_url }}">
             Back to Home
         </button>
         <nav>
@@ -42,7 +42,7 @@
                 Next →
             </button>
         </nav>
-        <button onclick="window.location = ''"></button>
+        <button onclick="window.location = {{ site.url | relative_url }}"></button>
             Back to Home
         </button>
     </body>
