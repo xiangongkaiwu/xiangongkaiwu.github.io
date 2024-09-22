@@ -6,6 +6,12 @@ layout: home
 ---
 # Tset
 
-{% for post in site.posts %}
-{{ post.title }}
+{% for page in site.pages %}
+{{ page.title }}
+{% endfor %}
+
+## Party Time
+
+{% for chapter in site.chapters %}
+{{ chapter.title }}
 {% endfor %}
