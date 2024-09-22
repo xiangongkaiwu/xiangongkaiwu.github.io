@@ -4,13 +4,11 @@
 
 layout: home
 ---
-# Tset
+# Mysteries of Immortal Puppet Master
 
-{% for page in site.pages %}
-{{ page.title }}
-{% endfor %}
-
-## Party Time
+<h2>
+    Latest Chapter: <a href="{{ site.chapters.last.url | relative_url }}">{{ site.chapters.last.title }}</a>
+</h2>
 
 {% for chapter in site.chapters %}
 {{ chapter.title }}
