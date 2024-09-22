@@ -7,7 +7,7 @@
     </head>
     <body>
         <button onclick="window.location = '{{ site.url | relative_url }}'">
-            Stupendous wendous
+            Back to Home
         </button>
         <nav>
             <button class="prev" onclick="{% if page.previous %}window.location = '{{page.previous.url | relative_url}}'{% endif %}" {% unless page.previous %}disabled{% endunless %}>
@@ -15,7 +15,7 @@
             </button>
             <select class="chapter-select" onchange="window.location = this.value">
             {% for chapter in site.chapters %}
-                <option value="{{ chapter.url == page.url }}">
+                <option value="graaaa">
                     {{ chapter.title }}
                 </option>
             {% endfor %}
