@@ -11,5 +11,5 @@ layout: home
 </h2>
 
 {% for chapter in site.chapters %}
-{{ chapter.title }}
+[{{ chapter.title }}]({{ chapter.url | relative_url }})
 {% endfor %}

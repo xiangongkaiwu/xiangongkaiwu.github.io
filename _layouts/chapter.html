@@ -6,8 +6,38 @@
         <title>{{ page.title }}</title>
     </head>
     <body>
+        <nav>
+            <button class="prev" onclick="{% if page.previous %}window.location = {{page.previous.url | relative_url}}{% endif %}" {% unless page.previous %}disabled{% endunless %}>
+                ← Previous
+            </button>
+            <select class="chapter-select" onchange="window.location = this.value">
+            {% for chapter in site.chapters %}
+                <option value="{{ chapter.url | relative_url }}">
+                    {{ chapter.title }}
+                </option>
+            {% endfor %}
+            </select>
+            <button class="next" onclick="{% if page.next %}window.location = {{ page.next.url | relative_url }}{% endif %}" {% unless page.next %}disabled{% endunless %}>
+                Next →
+            </button>
+        </nav>
         <main>
-
+            {{ content }}
         </main>
+        <nav></nav>
+            <button class="prev" onclick="{% if page.previous %}window.location = {{page.previous.url | relative_url}}{% endif %}" {% unless page.previous %}disabled{% endunless %}>
+                ← Previous
+            </button>
+            <select class="chapter-select" onchange="window.location = this.value">
+            {% for chapter in site.chapters %}
+                <option value="{{ chapter.url | relative_url }}">
+                    {{ chapter.title }}
+                </option>
+            {% endfor %}
+            </select>
+            <button class="next" onclick="{% if page.next %}window.location = {{ page.next.url | relative_url }}{% endif %}" {% unless page.next %}disabled{% endunless %}>
+                Next →
+            </button>
+        </nav>
     </body>
 </html>
