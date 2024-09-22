@@ -6,6 +6,9 @@
         <title>{{ page.title }}</title>
     </head>
     <body>
+        <button onclick="window.location = ''">
+            Back to Home
+        </button>
         <nav>
             <button class="prev" onclick="{% if page.previous %}window.location = {{page.previous.url | relative_url}}{% endif %}" {% unless page.previous %}disabled{% endunless %}>
                 ← Previous
@@ -39,5 +42,8 @@
                 Next →
             </button>
         </nav>
+        <button onclick="window.location = ''"></button>
+            Back to Home
+        </button>
     </body>
 </html>
