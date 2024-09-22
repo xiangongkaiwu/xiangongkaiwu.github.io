@@ -1,7 +1,6 @@
 ---
 title: >
     Chapter 332: Three Letters, Local Bully
-
 ---
 # Chapter 332: Three Letters, Local Bully
 

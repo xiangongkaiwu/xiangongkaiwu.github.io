@@ -1,7 +1,6 @@
 ---
 title: >
     Chapter 323: Ning Zhuo's Mother's Legacy
-
 ---
 # Chapter 323: Ning Zhuo's Mother's Legacy
 

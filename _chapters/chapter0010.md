@@ -1,7 +1,6 @@
 ---
 title: >
     Chapter 329: This is the Righteous Path
-
 ---
 # Chapter 329: This is the Righteous Path
 

@@ -1,7 +1,6 @@
 ---
 title: >
     Chapter 322: I Am Not a Child Without a Mother's Love!
-
 ---
 # Chapter 322: I Am Not a Child Without a Mother's Love!
 After a brief daze, Meng Yaoyin regained her senses and realized she was no longer in Fire Persimmon Immortal City but deep within the Fire Persimmon Mountain.

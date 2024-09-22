@@ -1,7 +1,6 @@
 ---
 title: >
     Chapter 328: The Ancestor Favors Ning Zhuo Too Much
-
 ---
 # Chapter 328: The Ancestor Favors Ning Zhuo Too Much
 Ning Family. Meeting Hall. The Spirit Lantern emitted a bright glow, illuminating the room. The elders of the Ning family gathered here, but the main seat and the seat to its left were both empty. Both the family head and the young master had perished.

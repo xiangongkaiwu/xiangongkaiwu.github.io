@@ -1,7 +1,6 @@
 ---
 title: >
     Chapter 333: A thousand-mile dragon leaves the Immortal city!
-
 ---
 # Chapter 333: A thousand-mile dragon leaves the Immortal city!
 

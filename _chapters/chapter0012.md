@@ -1,7 +1,6 @@
 ---
 title: >
     Chapter 331: Look at Ning Zhuo!
-
 ---
 # Chapter 331: Look at Ning Zhuo!
 

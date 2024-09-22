@@ -1,7 +1,6 @@
 ---
 title: >
     Chapter 330: Family Division Ceremony
-
 ---
 # Chapter 330: Family Division Ceremony
 A few more days passed.

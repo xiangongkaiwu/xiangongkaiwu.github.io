@@ -1,7 +1,6 @@
 ---
 title: >
     Chapter 327.1: Prizes Sent! September Lottery Draw Results Announced!
-
 ---
 # Chapter 327.1: Prizes Sent! September Lottery Draw Results Announced!
 

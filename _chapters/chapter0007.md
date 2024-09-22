@@ -1,7 +1,6 @@
 ---
 title: >
     Chapter 327: I Insist on Holding On!!! (Massive 20,000 Word Update, Begging for Monthly Tickets!)
-
 ---
 # Chapter 327: I Insist on Holding On!!! (Massive 20,000 Word Update, Begging for Monthly Tickets!)
 Ning Zhuo slowly shook his head, "Why would I seize the Immortal Palace? It’s for my mother. If there are monstrous sins to bear, I will bear them alone!"

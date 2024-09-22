@@ -1,7 +1,6 @@
 ---
 title: >
     Chapter 325: Zheng Danlian: I Will Kill! (Seeking Monthly Tickets)
-
 ---
 # Chapter 325: Zheng Danlian: I Will Kill! (Seeking Monthly Tickets)
 At the final critical moment in the battle with Qi Bai.

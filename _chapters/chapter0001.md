@@ -1,7 +1,6 @@
 ---
 title: >
     Chapter 321: The Monk Doctor, Meng Yaoyin (Start of the Grand Finale, Vote for Monthly Tickets!)
-
 ---
 # Chapter 321: The Monk Doctor, Meng Yaoyin (Start of the Grand Finale, Vote for Monthly Tickets!)
 

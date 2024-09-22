@@ -1,7 +1,6 @@
 ---
 title: >
     Chapter 326: Ning Zhuo, Let Go of Your Obsession
-
 ---
 # Chapter 326: Ning Zhuo, Let Go of Your Obsession
 
