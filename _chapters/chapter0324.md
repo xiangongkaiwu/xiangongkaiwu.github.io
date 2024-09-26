@@ -1,8 +1,9 @@
 ---
 title: >
-    Chapter 324: Dependent on Each Other (Seeking Monthly Tickets)
+    Chapter 324: Dependent on Each Other
 ---
 # Chapter 324: Dependent on Each Other (Seeking Monthly Tickets)
+
 In the past, Ning Zhuo used to see his mother, Meng Yaoyin, several times a year. But as time passed, it became once every two or three years.
 
 One year, two years, three years passed like this.
