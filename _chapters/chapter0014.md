@@ -1,226 +1,201 @@
 ---
 title: >
-    Chapter 333: A thousand-mile dragon leaves the Immortal city!
+    Chapter 333: Myriad Li Wandering Dragon Leaves the Immortal City!
 ---
-# Chapter 333: A thousand-mile dragon leaves the Immortal city!
+# Chapter 333: Myriad Li Wandering Dragon Leaves the Immortal City!
 
-Zhu Xuanji: "The specific content is: cancel the wanted orders for Sun Lingtong and Yang Chanyu, and give Sun Lingtong a chance to choose an item from the royal treasury as a reward."
+Zhu Xuanji said, “The specific content of the reward is this: Sun Lingtong and Yang Chanyu will have their arrest warrants cancelled, and Sun Lingtong will be granted a chance to choose an item from the royal treasury.”
 
-Ning Zhuo couldn't help but open his mouth slightly, his face full of disappointment: "This, this, this..."
+Ning Zhuo’s face immediately fell, unable to help himself from speaking in disappointment. “This, this, this…”
 
-He was indeed full of expectations, but he did not expect that the Southern Bean Kingdom royal family was so shrewd. Whether it was the open explanation or the secret reward, it was just right, but he, Ning Zhuo, was missed.
+He had been so full of anticipation, but the Southern Bean royal family was unexpectedly shrewd. Whether it was the explanation or the reward, both were just right, but both left Ning Zhuo himself bereft of any benefits.
 
-After the announcement, Zhu Xuanji immediately stood up and said, "I'll tell you one last thing. Don't leak the scripture that can extract spiritual power. Although it is a Buddhist scripture, it is still too eye-catching. It is obviously the way of the Zangling Sect."
+After explaining the royal decree, Zhu Xuanji immediately stood up and said, “Let me tell you one last thing. Do not let anyone know of that scripture that can extract spirituality. Even if it’s a Buddhist scripture, it’s too reminiscent of the techniques of the Corpse Spirit Sect.”
 
-Ning Zhuo hurriedly "intercepted" him halfway: "Master Zhu, are you leaving now? Please don't, I have specially prepared a small banquet for you..."
+Ning Zhuo hurriedly tried to stop Zhu Xuanji from leaving. “Lord Zhu, are you leaving right now? Please stay for while, there’s a little banquet that I’ve prepared specially for you…”
 
 Zhu Xuanji ignored him and left.
 
-Ning Zhuo chased after him, took out the magic weapon and stuffed it into Zhu Xuanji's hand: "It's just a small token of my respect. Hehe."
+Ning Zhuo chased after him, taking out a magical artifact and stuffing it into Zhu Xuanji’s hand. “Hehe, this is just a small token of my respect.”
 
-Zhu Xuanji looked down and saw that it was the Jade Dragon Mirror, which was a set with the Golden Phoenix Mirror he had brought back.
+Looking down, Zhu Xuanji saw that it was the Jade Dragon Mirror, which was part of a set along with the Golden Phoenix Mirror that he’d obtained.
 
-Part of the agreement among the three families was to divide up the several magical treasures floating in the main hall. Ning Zhuo got the Jade Dragon Mirror.
+Part of the agreement among the three sides was to divide up the magical artifacts floating in the main hall. This Jade Dragon Mirror was what Ning Zhuo had received.
 
-Zhu Xuanji quickly pulled his arm back, furious: "You actually want to bribe me? I am the detective, I am Zhu Xuanji, how can I accept your bribe? You bastard, how dare you bully me?!"
+Zhu Xuanji quickly pulled back his arm and shouted in fury, “You actually want to bribe me? I am the divine constable, Zhu Xuanji! How could I accept your bribe! You bastard, how dare you look down on me!?
 
-"Humph, he is indeed the same as Sun Lingtong, birds of a feather."
+“Humph, you are indeed the same kind of bastard as Sun Lingtong. Birds of a feather!”
 
-Ning Zhu was not frightened and still smiled: "Don't be nervous, Master Zhu. This matter is known to you, me, heaven and earth..."
+Ning Zhuo wasn’t frightened at all and maintained his smile. “Don’t be nervous, Lord Zhu. This matter will only be known to you, me, heaven, and earth-”
 
-Zhu Xuanji flew directly into the sky, turned into a rainbow and left, leaving very cleanly.
+Zhu Xuanji directly flew into the sky, turning into an arc of light and disappearing without hesitation.
 
-Ning Zhuo looked at his escaping light and sighed: "How could he leave so quickly? I wanted to trade the Mechanical Demon General with him."
+Ning Zhuo looked in the direction of his departure and sighed. “How could he leave so quickly? I was hoping to trade for the Demon General.”
 
-Afterwards, Ning Zhuo, Zhu Xuanji and Meng Kui divided up the three golden core-level constructs, namely the Buddha Healer, the demon general and the Taoist master.
+Back then, Ning Zhuo, Zhu Xuanji, and Meng Kui had divided up the three Golden Core-level mechanical constructs – the Buddhist Healer, the Demon General, and the Daoist Master.
 
+Ning Zhuo blinked in confusion as a thought suddenly occurred to him. “Why does it feel like Zhu Xuanji doesn’t dare to face me? He seems a bit panicked?”
 
-Ning Zhuo blinked in confusion, thinking: "Why do I feel that Zhu Xuanji doesn't dare to face me? He seems to be in a panic?"
+But he quickly shook his head, figuring that he was just a hallucination.
 
-He shook his head, thinking it was just his illusion.
+“If we really fought, I wouldn’t be able to beat Zhu Xuanji.
 
-"If we really fight, I still can't beat Zhu Xuanji."
+“I’ve already exposed all my trump cards. Although my mother’s spirituality has recovered greatly, each time she uses a spell or the Giant Snake Scythe, it’ll consume a lot of spirituality.”
 
-"My trump cards have all been exposed. Although my mother's spiritual power has been greatly replenished, every time I use my magical powers or the Great Snake Scythe, I have to consume a lot of spiritual power."
+The most powerful mechanical construct in Ning Zhuo’s hands was undoubtedly the Buddhist Healer. However, he would never use her lightly!
 
-The most powerful mechanism in Ning Zhuo's hand is undoubtedly the Buddha Healer, but he will never use it casually!
+The more of her spirituality remained, the longer she could hold out. As long as she still had even a little bit of spirituality, there was hope.
 
-The more spiritual she is, the longer she can hold out. As long as there is a little bit of spirituality left, there is hope.
+In fact, Ning Zhuo hadn’t been hallucinating. Zhu Xuanji was indeed reluctant to come into contact with him.
 
-Ning Zhuo's feeling was not wrong. Zhu Xuanji did not want to have more contact with Ning Zhuo.
+Zhu Xuanji didn’t fear Ning Zhuo, nor did he fear the Giant Snake Scythe. What he feared was the Buddha Heart Demon Seal!
 
- He is not afraid of Ning Zhuo, nor is he afraid of the Great Snake Scythe, but he is afraid of my Buddha Heart Demon Seal!
+Flying in the air, Zhu Xuanji’s face was grim.
 
-Zhu Xuanji was flying in the air, his eyes focused.
+The late emperor’s final words had explained that the Buddha Heart Demon Seal was related to the conflict between the Buddha World and the Demon World. Its karmic implications were extraordinarily heavy.
 
-The last words of the retired emperor directly explained that my Buddha Heart Demon Seal was related to the dispute between the Buddhist world and the demon world, and the cause and effect were extremely great.
+Zhu Xuanji certainly didn’t wish to get involved and could only choose to run far away.
 
-Zhu Xuanji certainly didn't want to get involved and could only choose to stay away.
+This was also the primary reason why Ning Zhuo wasn’t given an official position or any rewards. If he really became an official of the Southern Bean Kingdom, the royal family would most likely perish. They weren’t able to bear the consequences of being caught between the Buddha World and Demon World!
 
-The reason why Ning Zhuo was not given any reward or official position was also based on this consideration. If he really became an official of Southern Bean Kingdom, the royal family would probably perish because they could not bear the consequences of the Buddha and the Demon!
+In short, it was best to keep a distance from Ning Zhuo and watch from afar.
 
-In short, it is best to keep a distance from Ning Zhuo and watch from afar.
+This was a good thing for Zhu Xuanji himself, and it was also a good thing for the entire Southern Bean Kingdom!
 
-It's good for Zhu Xuanji himself, and it's also good for the entire Southern Bean Kingdom !
+Not long after Zhu Xuanji left, Ning Jiufan quietly arrived.
 
-Not long after Zhu Xuanji left, Ning Jufan also arrived quietly.
+“Ancestor, I’ve been looking forward to seeing your elderly face.” Ning Zhuo’s expression was full of sincerity.
 
-"Ancestor, I have been looking forward to seeing you grow old." Ning Zhuo's face was full of sincerity.
+He was extremely grateful to Ning Jiufan for speaking up for him and removing Ning Qingqiao from the position of family elder. This matter had cleared away any obstacles in the family and allowed the branch family to be established smoothly.
 
-He was very grateful to Ning Jufan for speaking up for him and abolishing Ning Qingqiao's position as the family elder, thus clearing away the obstacles within the family for a smooth division of the family.
+Ning Jiufan snorted coldly. “What else could I do? Let the main family continue oppressing you and give you a legitimate reason to destroy them?”
 
-Ning Jiufan snorted coldly: "What else can we do? Let the main branch continue to target you, suppress you, and give you a legitimate reason to let you destroy the entire main branch?"
+Ning Zhuo’s expression immediately changed. He swore up and down that he could never be so heartless and indifferent.
 
-Ning Zhuo's face immediately changed color, and he vowed that he would never be so heartless and indifferent.
+“Although I may have been treated a little badly, I was able to grow up without any issues. I still respect the main family, and would never try to deal with them using such drastic means. After all, we share the same blood. No matter what, they’re all my relatives,” Ning Zhuo sighed.
 
+Ning Jiufan snorted coldly. “Ning Xiaohui, Ning Xiaoren… weren’t they your relatives, too? I may be old, but I’m not muddled. I heard that one of your mechanical constructs is a pair of arms?”
 
-Although he was treated badly, he was able to grow up smoothly, and he still respected the Main branch. He would not use such drastic means to deal with the Main branch. After all, the Main branch and he had the same blood.
+Ning Zhuo quickly coughed. “Ancestor, let me congratulate you. With the support of the royal family, you will be able to subdue that demon ape. Our Ning family will become a powerful force with military might at the Nascent Soul level!
 
-"No matter what, they are all my relatives." Ning Zhuo sighed.
+“Sigh, I also spoke secretly with Lord Zhu Xuanji just now, but the royal family didn’t give me any rewards. I didn’t even get a position as an official.”
 
-Ning Jiufan snorted coldly: "Ning Xiaohui, Ning Xiaoren... Aren't these your relatives? Although I am old, I am not confused. I heard that you have a pair of mechanical arms?"
+Ning Zhuo spread his hands, giving off a strong feeling of grievance.
 
-Ning Zhuo coughed quickly: "Ancestor, I want to congratulate you. With the support of the royal family, you are able to control the demon ape. we are already a powerful force with the combat power of Nascent Soul level!
+Ning Jiufan coughed a few times, knowing that Ning Zhuo was using this matter as a bargaining chip for negotiation.
 
-"Alas, I just had a secret conversation with Lord Zhu Xuanji, but I learned that the royal family has not given me any reward, not even an official position."
-
-Ning Zhuo spread his hands, his whole body exuding a strong feeling of grievance and loss.
-
-Ning Jufan coughed a few times, knowing that Ning Zhuo was using this as a bargaining chip to negotiate with him.
-
-Ning Jiufan sighed, looked deeply at Ning Zhuo, and said: "The past is a mess. It is useless to dwell on it now."
+Sighing, he looked deeply at Ning Zhuo and spoke. “The past is a mess. It’s useless to dwell on it now.”
 
 Ning Zhuo strongly agreed.
 
-At this point, his crime of murdering Ning Xiaohui and others was lightly exposed by Ning Jiufan. Ning Jiufan: "According to your previous message, you want to leave Huoshi Immortal City?"
+Just a moment ago, Ning Jiufan had clearly exposed him for murdering Ning Xiaohui and the others. But now, the ancestor moved on from the topic, saying, “Your letter mentioned that you want to leave Fire Persimmon Immortal City?”
 
-Ning Zhuo bowed and said, "Ancestor, I have lived in Huoshi Immortal City for more than ten years and I am eager to travel around the world. As the saying goes, reading thousands of books will lead to traveling thousands of miles. The world is so big, I am eager to see it and can't wait."
+Ning Zhuo bowed and said, “Ancestor, I’ve lived in Fire Persimmon Immortal City for over ten years and am eager to travel the world. As the saying goes, reading Myriads of books will lead to traveling Myriads of li. This world is vast, and I can’t wait to see it with my own eyes.”
 
-Ning Rufan stroked his beard and said thoughtfully: "You are indeed too outstanding. Meng Kui must have remembered you for giving up the position of Palace Master. It is better to stay out of the limelight."
+Ning Jiufan stroked his beard. After thinking for a moment, he said, “Indeed. You’re too outstanding, and Meng Kui definitely remembers your face after you gave up the position of palace master. It’s better for you to stay out of the limelight for a while.”
 
-Ning Jufan was not worried about Ning Zhuo's personal safety.
+Ning Jiufan wasn’t worried about Ning Zhuo’s personal safety.
 
-On the one hand, Ning Zhuo's fighting power is stronger than his. This is simply outrageous! If a Golden Core-level fighting power cannot travel the world, then this world is too dangerous.
+On the one hand, Ning Zhuo’s total military might was stronger than his own. If even someone with Golden Core-level power at his fingertips couldn’t travel, then the world would be too dangerous.
 
-On the other hand, Ning Jiufan was more confident in Ning Zhuo's methods and strategies. Even his ancestor was deceived, and this young man was almost a demon. What was there to worry about?
+On the other hand, Ning Jiufan was even more confident thanks to Ning Zhuo’s strategies and tactics. Even he, the young man’s ancestor, had been deceived. With this sort of demon-like mind, what was there to worry about?
 
-"When are you leaving?" Ning Jiufan asked.
+“When are you leaving?” Ning Jiufan asked.
 
+Ning Zhuo said, “Half a month at the earliest.”
 
-Ning Zhuo said, "It's still too early, at least half a month."
+He said that he needed to consolidate his cultivation. At the same time, he had to make sure that the new branch family was stabilized.
 
-He said that he needed to consolidate his cultivation and at the same time, he needed to maintain stability by splitting up and building a new one.
+“Before you leave, remember to leave behind a mechanical construct to take care of your family,” Ning Jiufan reminded. “I think that mechanical monkey is pretty good.”
 
-"Before you leave, remember to leave a mechanical construct behind to take care of the family." Ning Jiufan reminded, "I think that the mechanical ape construct  is good."
+In order to gain Ning Jiufan’s support, Ning Zhuo had revealed a lot to him. Actually, the cooperation between the three parties meant that Ning Zhuo had no choice; if he didn’t say anything, Zhu Xuanji certainly would.
 
-In order to gain Ning Jiufan's support, Ning Zhuo revealed a lot to him.
+From then on, Ning Zhuo began living a reclusive life.
 
-In fact, the three-party cooperation must let Ning Zhuo know. If Ning Zhuo doesn't say it, Zhu Xuanji will tell it.
+The Flying Cloud Caravan left, but Song Fuli brought two Golden Core cultivators and returned in secret, hiding in the nearby mountains.
 
-Ning Zhuo began to live a secluded life.
+Luo Shang scattered ghost soldiers and ghost generals all around the city, waiting together with Han Ming.
 
-The Cloud Kingdom caravan left, but Song Fuli secretly returned with two Golden Core monks and hid in the nearby mountains.
+Yang Chanyu stuck to Sun Lingtong all day, continuously urging him to bid farewell to Ning Zhuo and return to the Void Sect with her as soon as possible.
 
-Luo Shang scattered the ghost soldiers and ghost generals around, and together with Han Ming, they were also waiting.
+She had profited greatly this time.
 
-Yang Chanyu stared at Sun Lingtong and urged him all day long to say goodbye to Ning Zhuo and return to the void sect as soon as possible.
+After Ning Zhuo reached an agreement with Meng Kui and Zhu Xuanji, he had obtained many things from the Immortal Palace. He also reaped quite a harvest from what the Zheng family left behind, and received plenty of gifts during the establishment of his branch family.
 
-She also made a lot of money this time.
+Among these gifts, Ning Zhuo took out a Golden Core-level Rainbow Auspicious Cloud and gave it to Yang Chanyu. Yang Chanyu was very satisfied with this, but she was also worried about the journey home.
 
-Ning Zhuo reached a contract with Meng Kui and Zhu Xuanji, and obtained many things from the Immortal Palace. He also reaped a lot of benefits from the Zheng family's inheritance, and received many gifts when the branch family was established.
+Even if she couldn’t detect Song Fuli, Luo Shang, and the others, she knew that the Soul Devouring Sect had a life-and-death feud with her and Sun Lingtong. The way back to the Void Sect would definitely be fraught with danger!
 
-To these gifts, Ning Zhuo also added a golden core-level seven-colored auspicious cloud and gave it to Yang Chanyu.
+One day, Ning Zhuo and Sun Lingtong secretly met each other in an underground base.
 
-Yang Chanyu was very satisfied with this, but she was worried about the way back.
+Glancing around, Sun Lingtong laughed. His face was emotional as he said, “In a few years, these secret bases will no longer exist.”
 
-Even if she couldn't detect Song Fuli, Luo Shang and the others, she knew that the soul devouring Sect had a deadly feud with both of them. On the way back, there would definitely be many murderous intentions, and it would not be peaceful!
+The defensive formation of Fire Persimmon Immortal City had many loopholes. This was because the Lava Immortal Palace had to be taken into consideration; the city lord didn’t want to affect the palace inside Fire Persimmon Mountain, so the city’s defensive formation was constructed somewhat loosely.
 
-Ning Zhuo and Sun Lingtong met secretly in the underground base.
+But now, Meng Kui had become the palace master and could incorporate the entire Immortal Palace into the city’s defensive formation, making it the core of the formation.
 
-Sun Lingtong glanced around, laughed, and said with emotion: "In a few years, these secret bases will no longer exist."
+Thus, the defensive formation would soon be re-established and monitored carefully. The current loopholes would be fixed, and finding more loopholes would become extremely difficult.
 
-The defense formation of Huoshi Immortal City has many loopholes. This is because they have to take Lava Palace into consideration and do not want to affect the palace's defense of Huoshi Mountain, so the defense formation is very conservative.
+Unlike Sun Lingtong, Ning Zhuo didn’t care about the underground bases at all. Turning to his companion, he said, “Let’s go, Boss.”
 
-Now, Meng Kui has become the Palace Master of the Immortal Palace and can incorporate the entire Immortal Palace into the Immortal City's city defense formation, serving as the core of the formation.
+Concealing themselves, Ning Zhuo and Sun Lingtong warped through base after base. In the end, they arrived deep inside Fire Persimmon Mountain.
 
+They stopped inside certain tunnel.
 
-Therefore, next, the city defense formation will definitely be re-laid and refined, and finding loopholes will be extremely difficult.
+“It’s here.” Ning Zhuo controlled a mechanical explosive monkey to continuously scratch at the ground. Soon, the monkey pulled out a tiny and exquisite mechanical dragon.
 
-The two of them hid their bodies, transited through the underground base, and finally went deep into Huoshi Mountain.
+Even stretched to its fullest extent, this mechanical dragon was no larger than the palm of Ning Zhuo’s hand. Its color was a drab gray, and it looked very inconspicuous.
 
-Ning Zhuo, however, had no interest in the underground base and urged Sun Lingtong: "Let's go, Boss."
+However, Ning Zhuo knew very well that this was a mechanical construct at the Nascent Soul level – the Myriad Li Wandering Dragon!
 
-Ning Zhuo stopped in a tunnel.
+After scanning it with his spirit sense, Ning Zhuo’s expression lit up with joy. “Great, just as expected. The Dragon Turtle Fire Spirit is in here, too!”
 
-"It's right here." He controlled the fire ape and kept scratching at the ground.
+Sun Lingtong was overjoyed when he heard Ning Zhuo’s words. “Earlier, the Dragon Turtle Fire Spirit proactively courted death. Did it really think that we’re all idiots? Anyone could see that that matter was extremely bizarre. Haha, Little Zhuo, you finally found it!
 
-Soon, the fire ape pulled out a small and exquisite mechanical dragon.
+“But how on earth did it escape into this little mechanical dragon right under our noses?”
 
-The entire length of the mechanical dragon was no longer than Ning Zhuo's palm, and it was gray and inconspicuous.
+Ning Zhuo said, “This spirit has no fatal weaknesses. Most likely, it used the Immortal Palace’s punishment to split itself into two parts. The main part stayed in the main hall of the palace, deceiving us and rushing to its death. When the main part died, the split-off portion became the only one. It escaped here and fell into a coma.”
 
-But Ning Zhuo knew that this was a mechanical creation of the Nascent Soul level—the Thousand Mile Wandering Dragon!
+Scanning the Dragon Turtle Fire Spirit within the little mechanical dragon, he saw that it was seriously injured. It didn’t move at all as it recovered slowly.
 
-After scanning with his spiritual sense, Ning Zhuo showed a happy expression: "Great, just as I expected, the Dragon Turtle Fire Spirit is also in there!"
+Soon, Ning Zhuo and Sun Lingtong successfully activated the mechanical dragon. The size of this Myriad Li Wandering Dragon didn’t change, but two rays of light burst out from its eyes and sucked Sun Lingtong and Ning Zhuo into its body.
 
-Sun Lingtong was overjoyed when he heard this: "This dragon turtle spirit took the initiative to seek death, which is extremely strange. Does he really think we are all fools? Haha, little Zhuo finally found it!"
+“Wonderful, wonderful!” After trying for a while, Sun Lingtong gradually figured out the method to control the Myriad Li Wandering Dragon and shouted with joy.
 
-"But how on earth did it escape and get into this little dragon under our noses?"
-
-Ning Zhuo said: "The spirit has no fatal weakness. It is very likely that it used the punishment of the Immortal Palace to split itself into two parts. The main part stayed in the main hall, deceiving us and actively seeking death. When the main part died, the split would become the only one and gradually regain consciousness from the coma."
-
-Ning Zhuo saw the dragon turtle fire spirit in the little dragon in the mechanism, but the latter was seriously injured, there was no movement, and he was recovering slowly.
-
-Ning Zhou and Sun Lingtong tried for a while and successfully activated the mechanical dragon.
-
-The size of the Thousand-mile Wandering dragon did not change, but two rays of light burst out from its eyes, sweeping over Sun Lingtong and Ning Zhou , instantly sucking them into the mechanism's body.
-
-"Wonderful, wonderful!" After exploring, Sun Lingtong gradually mastered the method of controlling Wanli Youlong and danced with joy.
-
-"In this way, we can directly withdraw from Huoshi Immortal City."
-
-"Let Meng Kui take over the position of Palace Master temporarily and repair the Palace for us, haha.
-
-
-ha!"
+“Like this, we can directly leave Fire Persimmon Immortal City. Meng Kui can have the position of palace master for now. Let him repair the palace for us, haha!”
 
 Ning Zhuo smiled and nodded.
 
+The reason he had been able to find the Dragon Turtle Fire Spirit was because when he met it in the main hall previously, he had planted a Life-Hanging Thread on it.
 
-The reason why he was able to find the dragon turtle fire spirit was because when he saw the dragon turtle fire spirit in the main hall, he planted a thread of life in it.
+Thus, when the Dragon Turtle Fire Spirit was buried in the sea of fire, Ning Zhuo sensed from its Life-Hanging Thread that it had left the hall and continued escaping rapidly.
 
-As a result, the main body of the Dragon Turtle Fire Spirit was buried in the sea of fire, but Ning Zhuo immediately felt that his life was hanging by a thread, so he moved outside the hall and continued to move quickly.
+At that time, Zhu Zhen had been tracking down the Myriad Li Wandering Dragon.
 
-At that time, Zhu Zhen was still chasing the Thousand-Mile Wandering Dragon.
+“The authority over the Immortal Palace is split into three parts. Right now, I control the Buddha Heart Demon Seal along with the Dragon Turtle Fire Spirit…”
 
-"The Immortal Palace has three powers. Now I control my Buddha Heart Demon Seal, Dragon turtle Fire spirit...
+Surrendering the position of palace master had actually already been part of Ning Zhuo’s calculations.
 
-Ning Zhuo's decision to surrender was actually within his expectations.
+“The Zhu family wants to rely on my Ning family to face the Meng family, and my Ning family has to rely on me to regain the position of palace master in the future.”
 
-"The Zhu family wants to rely on my Ning family, and my Ning family is also relying on me to help regain the position of the Palace Master of the Immortal Palace in the future?"
+Ning Zhuo smiled and looked at Sun Lingtong, saying, “But, Boss, are you sure there won’t be any trouble if you leave with me?”
 
-Ning Zhuo smiled and looked at Sun Lingtong: "But, Boss, are you sure there will be no trouble if you leave with me?"
+Sun Lingtong laughed. “Don’t you know that your boss is a smart person? Back then, I promised that silly woman Yang Chanyu that I would return to the Void Sect with her once the matter of the Lava Immortal Palace was over. However… is the matter over yet?”
 
-Sun Lingtong laughed: "Your boss, I am such a smart person. At the beginning, I agreed with that silly woman Yang Chanyu that after the matter in Lava Immortal Palace was over, I would return to Void sect with her. But is this matter over?"
+Sun Lingtong spread his hands: “No!”
 
-Sun Lingtong spread out her hands: "No!"
+“Alright.” Ning Zhuo nodded, feeling relieved. He subconsciously glanced up in the direction of Fire Persimmon Immortal City.
 
-"Okay." Ning Zhuo nodded, relieved. He subconsciously looked up, which was the direction of Huoshi Immortal city.
+To Ning Zhuo, this place was where he was born and raised. This was his hometown!
 
-For Ning Zhuo, he was born and grew up here, and this is his hometown!
+“Farewell, my hometown.” Calling out softly in his heart, he fully activated the mechanical dragon. Its Nascent Soul-level aura was no longer restrained, pulsing outward and immediately attracting numerous gazes.
 
-"Goodbye, my hometown." He called out softly in his heart, and then controlled the dragon
+A moment later, a loud roar echoed out, and the Myriad Li Wandering Dragon twisted its body. Leaving behind an afterimage, it disappeared on the spot.
 
-The mechanical construct was fully activated, and the Nascent Soul level aura was no longer restrained. It expanded rapidly and immediately attracted several gazes.
+“You little brat, you even lied to your ancestor!” Ning Jiufan cursed, but a smile hung on his lips.
 
-The next moment.
+Ning Zhuo had said that he would stay for at least half a month.
 
-With a dragon roar, the Dragon swung its body, leaving a residual image on the spot, and disappeared without a trace.
+But now, he had run away after only a few days.
 
-"You little bastard, you even lied to your ancestors!" Ning Jufan cursed, but a smile appeared on his lips.
-
-
-Ning Zhuo told him that he would have to stay for at least half a month.
-
-But after a few days, he escaped.
-
-The next moment, Ning Jiufan's smile suddenly froze. He thought of something: "Wait! My Ice Heart Jade Pot is still with him, and he hasn't returned it to me yet!"
+A moment later, Ning Jiufan’s smile suddenly froze as he thought of something. “Wait! My Ice Heart Jade Pot is still in his hands! He hasn’t returned it to me yet!”

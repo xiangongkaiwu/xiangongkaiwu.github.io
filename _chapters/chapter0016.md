@@ -1,195 +1,187 @@
 ---
 title: >
-    Chapter 335: Misty Hidden Mountain
+    Chapter 335: Fog Shrouded Mountain
 ---
-# Chapter 335: Misty Hidden Mountain
+# Chapter 335: Fog Shrouded Mountain
 
-The great journey began! The technique was in progress.
+Myriad Li Wandering Dragon!
 
-Ning Zhuo sat in a meditative posture, floating mid-air.
+Inside the cultivation chamber, Ning Zhuo floated cross-legged in midair.
 
-Ning Zhuo was cultivating three supreme techniques of his dantians:
+Sun Lingtong stood behind him, also floating, the palm of his meaty little hand pressed against Ning Zhuo’s back.
 
-First was the Mirror Stage Technique,
+Ning Zhuo was currently practicing the Three Schools Supreme Arts.
 
-Then the Five Element Qi Regulations art,
+First was the Mirror Platform Spirit Channeling Art, then the Five Elements Qi Controlling Art, and finally the Demonic Blood Vein Technique.
 
-Finally, the Demonic Blood Muscle Technique.
+Sometimes, his demeanor was dignified and his face radiated a Buddhist light; sometimes, his five qis circulated in tandem; sometimes, his aura was bloody and full of demonic intent.
 
-Sometimes, he would appear with a Buddha-like glow, sometimes the five elements would circulate, making him seem immortal, and at other times, a bloodthirsty aura exuded from him with a demonic intensity.
+Sun Lingtong’s divine sense penetrated Ning Zhuo’s body, observing his three dantians.
 
-Using divine sense, Sun Lingtong observed the three Dantians in Ning Zhuo's body.
+He saw that the upper dantian was clear of blemishes, and above and below were two flat, smooth expanses. They were like two gigantic mirrors forming heaven and earth.
 
-The upper Dantian was vast and boundless. Its top and bottom were smooth and flat, resembling two giant mirrors, representing the heavens and earth.
+Between these two mirrors, there were smaller mirrors floating quietly. All kinds of thoughts flickered among them, emerging within the mirrors before disappearing instantaneously.
 
-In between these mirrors, smaller mirrors floated silently. Thoughts were born rapidly in these mirrors, only to be instantly erased.
+This was the Bright Mirror Spiritual Light Dantian!
 
-This was the "Bright Mirror, Tree of Light" Dantian.
+In Ning Zhuo’s middle dantian, there was a five-colored maelstrom, a tornado-like pillar spanning the distance between heaven and earth. This maelstrom contained the qis of the five elements: sometimes clear and distinct, sometimes blending into one, and sometimes changing constantly into each other again and again. The profundities of the mutual generation and restraint of the five elements were on full display.
 
-In the middle Dantian, a five-colored vortex spun, resembling a celestial tornado, connecting heaven and earth. The five elements alternated between distinct separation and chaotic fusion, demonstrating the mystery of their cyclical creation and destruction.
+This was the Five Qis Heavenly Pivot Dantian!
 
-This was the "Heavenly Pillar of Five Elemental Qi" Dantian.
+Ning Zhuo’s lower dantian was suffused with dense masses of blood that seemed to form crimson soil. This soil was covered in layers of crisscrossing blood veins, weaving together like a giant net.
 
-In the lower Dantian, thick blood Qi filled the space, forming a crimson landscape. Upon this landscape, layers of blood vessels twisted like vines, crisscrossing to form an interconnected web.
+Boundless blood energy could be found inside these blood veins. With every beat of Ning Zhuo’s heart, the blood energy inside the veins ebbed and flowed like a tide.
 
-Within the blood vessels, blood Qi surged like a river, pulsing with Ning Zhuo’s heartbeat, rising and falling like ocean tides.
+This was the Bloody Soil Demonic Vein Dantian!
 
-This was the "Demonic Blood Technique" Dantian!
+Since Ning Zhuo had advanced to the Foundation Establishment stage, his three dantians were beginning to solidify, undergoing mysterious and profound transformations.
 
-Ning Zhuo had already reached the Foundation Establishment stage, and his three Dantians were beginning to solidify, marking significant progress in his cultivation.
+After the session of cultivation was complete, Ning Zhuo opened his eyes, and Sun Lingtong retracted his palm.
 
-After completing his cultivation, Ning Zhuo slowly opened his eyes. Sun Lingtong also withdrew his palm and relaxed.
+The magic formation was deactivated, and the two people fell to the ground.
 
-The magical formation deactivated, and both of them descended gently to the ground.
+Sun Lingtong immediately gushed in praise, “Wonderful, really wonderful. These three supreme arts are truly exquisite. Even a single one is already a cultivation technique of the highest grade.
 
-Sun Lingtong praised him, "Marvelous! Truly marvelous! These three supreme methods are truly exquisite. Even if you only practiced one of them, it would be a top-tier technique."
+“If I hadn’t seen it with my own eyes, I would never have imagined that someone could cultivate all three at once. The Three Schools Supreme Sage is truly incredible! His achievements are enough to shake the heavens and shatter the earth.
 
-"If I hadn’t seen it with my own eyes, I could never have imagined that someone could practice all three at the same time. The Master of the Three Sects was truly extraordinary!"
+“Your choice to endure for more than ten years just to fight for the Lava Immortal Palace was completely correct!
 
-"Such accomplishments—it's as if you can move mountains and shake the heavens."
+“Ol’ Zhuo, if you keep cultivating this, your future will be unlimited!”
 
-"It was totally worth hiding behind the scenes for 10 years to get this Lava Immortal Palace technique. What a wise decision!"
+Sun Lingtong was very honest.
 
-"You keep cultivating like this, little brother, and your future is limitless!" Sun Lingtong said with deep admiration.
+Ning Zhuo nodded. “It’s a pity that the Dharma Transmission Bell only taught me the techniques for the Foundation Establishment stage. In the future, I’ll have to return to the Lava Immortal Palace to learn the Golden Core stage techniques.”
 
-Ning Zhuo nodded, "Unfortunately, the transmission jade only contains the Foundation Establishment techniques. I’ll have to return to the Lava Immortal Palace to receive the Golden Core stage methods."
+Sun Lingtong paused. “That is indeed a troublesome matter. You’ll have to be careful of the Meng family when you do that.”
 
-Liao Zhutong sighed, "Yes, that will be troublesome. We’ll need to be cautious of the Meng family from now on."
+“Boss, there’s something I don’t understand in the Demonic Blood Muscle Technique. It’s this part that talks about the unity of heart and Dharma.” Ning Zhuo took the chance to ask for advice.
 
-"Big brother, there’s a part of the Demonic Blood Tendon technique that I don't quite understand. It’s the section about the unity of the heart and technique, as well as the connection between thunder and flesh." Ning Zhuo sought guidance.
+Sun Lingtong rubbed his chin and said, “I haven’t practiced the supreme arts and only used my divine sense to watch you cultivate just now. That’s why I can only provide my own opinion, which isn’t necessarily correct.
 
-Liao Zhutong stroked his chin, "I’ve never practiced the Three Supreme Methods, so I only observed with my divine sense while you cultivated. I can offer my opinion, but I can't guarantee it's entirely correct."
+“When it comes to cultivation, you can’t just think about the principles of the technique logically. You also need your own personal enlightenment, and to deepen your understanding of the technique through practice.
 
-"Understanding a technique isn't just about contemplating its principles in your mind—you also need personal insights. Cultivating will help you deepen your understanding."
+“Right now, you’re only in the Foundation Establishment stage, so advice from others can still have an effect. But once you reach the Golden Core stage, you’ll have to rely primarily on personal enlightenment.
 
-"You’re only at the Foundation Establishment stage, so guidance from others can still be useful. But once you reach the Golden Core stage, it’ll mostly rely on your own comprehension."
+“So, do you still want my help?”
 
-"So, do you still want my help?"
+Ning Zhuo immediately understood what Sun Lingtong was trying to say.
 
-Ning Zhuo immediately grasped Liao Zhutong's point.
+When it came to understanding cultivation techniques, cultivators would eventually reach a point where they had to rely on themselves. If he didn’t get into a habit of obtaining insights by himself in the early stages of cultivation, he would be at a disadvantage in the future!
 
-In the future, personal comprehension would be crucial for mastering techniques. If he didn’t develop his ability to interpret methods during the early stages of cultivation, it would become a significant obstacle later on.
+“I’ll try to understand it myself first,” Ning Zhuo said.
 
-"I think I'll try to understand it myself first," Ning Zhuo said.
+Sun Lingtong clapped his hands. “Haha, you’ve made the right choice! Now come on, let’s take a look around this Myriad Li Wandering Dragon.”
 
-Sun Lingtong clapped his hands, laughing, "Haha, that’s the right choice!"
+The Myriad Li Wandering Dragon had the dragon’s spine running down its center, and there were numerous chambers located on either side.
 
-"Come on, let’s explore this Ten Thousand Mile Soaring Dragon a bit more."
+The cultivation chamber that Sun Lingtong and Ning Zhuo were currently in was one of them.
 
-The Ten Thousand Mile Soaring Dragon was centered around a dragon’s spine, with many compartments on either side.
+Aside from this control chamber, there was also a dragon’s head chamber, refinement chamber, storage chamber, furnace chamber, nursery chamber, etc.
 
-The cultivation chamber where Sun Lingtong and Ning Zhuo were was just one of these compartments.
+Sun Lingtong and Ning Zhuo walked around and discovered that there was a great amount of fire essence in the storage chamber. The furnace chamber was filled with overwhelming heat that made it inaccessible. Although the refining chamber was open, neither Sun Lingtong nor Ning Zhuo dared to test it out. As for the nursery chamber, it was empty.
 
-There were also a dragon head chamber, a refining chamber, a storage chamber, a workshop chamber, and even a nursery chamber.
+Finally, the two arrived at the chamber at the dragon’s head and saw the Dragon Turtle Fire Spirit inside.
 
-As they explored, they discovered that the storage chamber held an abundance of fire essence, and the workshop chamber was filled with overwhelming heat, making it hard to approach. 
+It was curled up into a ball and nestled inside a pearl-like bead.
 
-The refining chamber could actually pilot the vessel, but neither dared to take the risk. The nursery chamber, on the other hand, was completely empty.
+This bead was the size of a small millstone. It was translucent, smooth, and perfectly round.
 
-Finally, they arrived at the dragon head chamber, where they found a fiery crystal dragon core.
+Ning Zhuo stretched out his hand and held the bead in his palm. In an instant, intricate formations appeared, spreading from the bead onto the walls and flowing along the dragon’s spine, awakening the various mechanisms of the Myriad Li Wandering Dragon mechanical construct.
 
-It had shrunk to the size of a small pearl and nestled inside a pearl-like orb.
+Ning Zhuo activated one of the mechanisms, and a circular hole immediately appeared in the ceiling. A “psssh” came from the hole, and a small amount of air was expelled from the dragon’s head chamber before being refilled.
 
-The orb was the size of a millstone and semi-transparent, with a perfectly smooth and lustrous surface.
+This was the pneumatic valve.
 
-Ning Zhuo reached out and touched the pearl. Instantly, intricate patterns of magical symbols appeared, spreading from the pearl to the surface of the table, illuminating the walls, and activating the mechanisms within the Ten Thousand Mile Soaring Dragon.
+Once activated, it could adjust the airflow between the individual chambers. If there was a fire somewhere, the controller of the dragon could just expel all the air from the chamber to extinguish the flames.
 
-Ning Zhuo experimented with one of the mechanisms, and the ceiling opened up to reveal a round hole. A hissing sound followed as air was sucked out, only to be replaced by fresh air.
+“Whoa, that looks fun! Hey hey, let me have a turn.” Sun Lingtong’s heart itched as he watched Ning Zhuo play around with various mechanisms.
 
-This was the Air Circulation Mechanism.
+The Myriad Li Wandering Dragon could be considered an absolute masterpiece among mechanical constructs.
 
-Once activated, it could regulate the airflow between different chambers. In case of a fire, the simplest method would be to evacuate all the air from the affected chamber, suffocating the flames.
+Not only was its battle prowess exceptional, it was also perfect for traveling long distances. The chambers of the Myriad Li Wandering Dragon could fulfill various functions and provide a stable cultivation environment for the cultivators riding it.
 
-"This is so fun! Let me have a turn!" Sun Lingtong couldn't contain his excitement as Ning Zhuo played with various mechanisms.
+When Sun Lingtong took his turn, he activated the observation mechanism. In an instant, he and Ning Zhuo saw the scenes of the world outside the Myriad Li Wandering Dragon.
 
-The Ten Thousand Mile Soaring Dragon was a highly sophisticated construct.
+Their surroundings were pitch-black. The only thing that could be seen were streaks of silver light piercing through the curtain of darkness around the Myriad Li Wandering Dragon.
 
-Its combat power wasn’t particularly strong, but it was excellent for long-distance travel. The chambers not only fulfilled various functional purposes but also provided the occupants with a relatively stable and safe environment for cultivation.
+These silver streaks were sometimes sparse and sometimes dense. They occasionally grouped up into great masses of light.
 
-When Sun Lingtong activated the observation mechanism, they could see projections of the outside world.
+“Is this how a Nascent Soul cultivator feels when they traverse the void?” Sun Lingtong and Ning Zhuo were momentarily stunned.
 
-All around was pitch-black darkness, and streaks of silver lines pierced through the void, moving swiftly past the Ten Thousand Mile Soaring Dragon.
+The Myriad Li Wandering Dragon was at the Nascent Soul level, and its best feature was that it could imitate Nascent Soul cultivators and enter the void to achieve long-distance teleportation.
 
-The silver lines varied in density—sometimes sparse, sometimes thick. Occasionally, they formed blocks of condensed silver light.
+As it approached its destination, the Myriad Li Wandering Dragon gradually slowed down. The silver streaks stopped fluctuating and quickly coalesced, merging with each other and eventually turning into the real world.
 
-"So this is what it feels like for a Nascent Soul cultivator to traverse the void?" Both of them were amazed.
+It was over in a flash.
 
-The Ten Thousand Mile Soaring Dragon was at the Nascent Soul level, and its greatest feature was its ability to mimic a Nascent Soul cultivator's void-traveling technique, allowing it to cover great distances through directed teleportation.
+Ning Zhuo and Sun Lingtong felt a heavy jolt inside the mechanical dragon. Both of them were in a daze, and it took them a moment to realize that the Myriad Li Wandering Dragon had landed among mountains.
 
-As they neared their destination, the speed of the Ten Thousand Mile Soaring Dragon gradually slowed down. The silver lines thickened and coalesced, finally merging into the real world.
+Ning Zhuo immediately took out a jade slip containing a map, then sent his divine sense outward to investigate.
 
-The process was brief.
+He discovered that the surrounding terrain was different from what was on the map.
 
-They felt a slight jolt as the vessel landed, and suddenly, they were in the middle of a mountainous region.
+The Myriad Li Wandering Dragon was freshly refined, so its routing information was completely empty. It had arrived here by following the general direction indicated on an external map jade slip.
 
-Ning Zhuo immediately pulled out a map and used his divine sense to check their surroundings. He realized that the terrain was different from what was described on the map.
+Ning Zhuo had obtained this map jade slip from Ning Jiufan. It recorded the detailed terrain on the route that the Ning family had taken during its migration.
 
-The Ten Thousand Mile Soaring Dragon was newly crafted, and its navigation data was empty. Ning Zhuo had to rely on external maps to guide their way.
+However, the map wasn’t perfectly accurate, so Ning Zhuo had to manually drive the Myriad Li Wandering Dragon, resulting in a delay.
 
-The map was something Ning Zhuo had acquired from Ning Jiufan, containing details of the route Ning's family had taken during their journey.
+There was no need to re-enter the void.
 
-But the map wasn’t entirely accurate, so Ning Zhuo adjusted the Dragon, flying it around the area to get a better sense of direction.
+As small as a butterfly, the Myriad Li Wandering Dragon soared through the sky without catching any attention.
 
-There was no need to re-enter the void now.
+After eight and a half incense sticks’ worth of time, Ning Zhuo finally saw his location – Fog Shrouded Mountain!
 
-The Soaring Dragon glided in the sky, small and unnoticeable like a butterfly, with its presence masked.
+This towering mountain was covered by clouds and mist.
 
-After flying around for about an hour, Ning Zhuo finally spotted their destination—Hidden Mountain!
+Under the sunset, tall and straight pine trees could be seen among the clouds and mist. The gurgling of streams merged into a clear melody.
 
-The mountain was towering and majestic, shrouded in layers of mist.
+Back when the Ning family was migrating, they had been trapped in the labyrinth of the thick fog. It was only after eight days and seven nights passed that they finally escaped.
 
-In the dusk, amidst the gaps in the clouds, the green pines stood tall, fresh and vibrant. Streams cascaded down the rocks, producing a clear, melodious sound.
+If Ning Zhuo wanted to cure Buddhist Healer Meng Yaoyin, he had to treat both the symptoms and the root cause of her malady.
 
-The Ning family had once been trapped in this place during their travels, as the mountain’s fog had confused them, making it seem like a maze. They were lost for three days and nights before finally finding their way out.
+He had no clue about the root cause, nor how he could fix it.
 
-Ning Zhuo intended to cure the poison afflicting Meng Yaoyin, but to do so, he needed to address both the symptoms and the root cause.
+However, he did have a plan as to how he could treat the symptoms. His idea was to retrace the Ning family’s migration route and collect any relics Meng Yaoyin had left behind along the way.
 
-As for the root cause, he currently had no clues.
+He wanted to see if these relics could lead him to any clues about Meng Yaoyin’s identity or the origin of her Dao injury. Moreover, he could also sacrifice these relics to increase Buddhist Healer Meng Yaoyin’s spirituality and extend his window for healing her.
 
-However, he had a plan to treat the symptoms. He would retrace the Ning family’s journey, gathering elixirs along the way that could potentially extend Meng Xun’s life and buy more time for a proper cure.
+Controlling the Myriad Li Wandering Dragon, Ning Zhuo made a circle around Fog Shrouded Mountain at low altitude.
 
-Ning Zhuo controlled the Soaring Dragon to fly around Hidden Mountain.
+The Myriad Li Wandering Dragon was the size of a butterfly, and its restrained aura made it almost impossible to detect.
 
-The vessel shrank to the size of a butterfly and remained undetected.
+Soon, Ning Zhuo discovered a village at the foot of the mountain. After descending, he left the Myriad Li Wandering Dragon and changed its size, wrapping it around his waist like a belt.
 
-At the foot of the mountain, Ning Zhuo found a small village.
+He and Sun Lingtong disguised themselves and quickly walked over to the village.
 
-A moment later, he shrank the Soaring Dragon slightly and wore it around his waist like a belt.
+When the female villager on patrol duty saw Ning Zhuo and Sun Lingtong, she immediately shouted at them to halt.
 
-He and Ning Zhuo disguised themselves and walked into the village.
+Ning Zhuo and Sun Lingtong both exuded their Foundation Establishment auras.
 
-The village’s female guards spotted them and immediately stopped them with quiet but stern warnings.
+The patrolwoman was only in the Qi Refining stage and immediately felt a heavy pressure. However, she bravely stood her ground and blocked the pair.
 
-Both Sun Lingtong and Ning Zhuo emanated the aura of Foundation Establishment cultivators.
+Ning Zhuo quickly explained his intentions.
 
-The guards, only at the Qi Refining stage, felt the pressure but stood their ground, trying to block their way.
+When she heard Ning Zhuo’s words, the patrolwoman gradually relaxed and replied, “Oh, you want to go to the mountain temple. Are you looking for the real temple or the fake one?”
 
-Sun Lingtong spoke kindly, explaining their purpose.
+A strange expression appeared on Ning Zhuo’s face. “This is Southern Bean Kingdom territory. If I recall correctly, the Southern Bean Kingdom has strictly forbidden superstitions and taken control of the mountain temples. How could there be a fake temple?”
 
-The guards, sensing his sincerity, gradually relaxed. "Oh, are you looking for the Mountain God Temple? Do you want to go to the real temple or the fake one?"
+Ning Zhuo wanted to search for relics of his mother, but it would be too difficult relying on just himself, Sun Lingtong, and the Myriad Li Wandering Dragon. After all, Fog Shrouded Mountain covered far too wide of an area.
 
-Sun Lingtong was puzzled, "This is Southern Bean Kingdom territory, and as far as I know, the Southern Bean Kingdom long ago outlawed mountain temples and banned superstitions. How can there still be fake temples?"
+Thus, the best method was to directly ask the mountain god.
 
-To search for the cure for Meng Yaoyin, relying solely on the Thousand Mile Soaring Dragon, Sun Lingtong, and Ning Zhuo wouldn’t be enough.
+The patrolwoman quickly explained, “The fake temple is also real. The mountain god enshrined there has already been verified by the royal family, so there’s no need to worry. It’s just that one is effective and the other almost never responds, so we call them real and fake to differentiate.”
 
-After all, the Hidden Mountain was vast.
+Ning Zhuo asked the patrolwoman to explain in more detail, to which she replied, “The real temple is the Fox God Temple of the deputy mountain god, and the fake one is the Tiger God Temple of the main mountain god. The two temples are found to the south and north of Fog Shrouded Mountain, respectively.
 
-So, the best way was to consult the local Mountain God.
+Sun Lingtong was slightly surprised. “It’s said that ‘the fox exploits the tiger’s might’. But here on Fog Shrouded Mountain, the Fox God is the effective one while the Tiger God is unresponsive. What’s going on?”
 
-The female guard hurriedly explained, "The fake temple is also real. The Mountain God there has been formally recognized by the royal family, so there’s no need to worry. We just call them the real temple and the fake temple because one is more responsive, while the other is less so."
+“We’ll know once we take a look,” Ning Zhuo replied. Before leaving, he took out a spirit stone and gave it to the patrolwoman as payment.
 
-Sun Lingtong asked for more details.
+“Thanks for clearing our confusion,” he said with a smile.
 
-The female guard explained, "The real temple is the Lonely Mountain Temple, dedicated to the deputy Mountain God, while the fake temple is the Tiger God Temple, dedicated to the main Mountain God. They are located on the southern and northern sides of Mist-Hidden Mountain."
+Taking the spirit stone and seeing that the two were about to leave, the patrolwoman hurriedly stopped them, saying, “Wait a minute, you two. Let me go check with the village chief and see if you can stay the night in the village.
 
-Ning Zhuo was puzzled, "There’s a saying, ‘Better the tiger than the lonely,’ but here in Mist-Hidden Mountain, the Lonely Immortal is more responsive, while the Tiger God isn’t. How did it end up the other way around?"
+“You know, the mountain isn’t safe at night. That’s when the fog is the thickest; many villagers have lost their way in the fog and eventually died.
 
-"We’ll know once we go and take a look," Sun Lingtong replied. Before leaving, he handed a spirit stone to the female guard as a reward.
-
-"Thank you for the information." Sun Lingtong smiled kindly.
-
-The female guard took the spirit stone, but seeing them leave, she hesitated and hurriedly stopped them. "Wait, let me go inform the village chief and see if you can spend the night here. It’s not safe to enter the mountain at night."
-
-"At night, the mountain fog becomes thick, and many villagers have lost their way and perished in the dense fog."
-
-"If you wait until daylight, it will be much safer to climb the mountain."
+“It’s not too late to wait for morning before going down the mountain.”

@@ -4,184 +4,170 @@ title: >
 ---
 # Chapter 334: Breaking the Situation
 
-"This little brat! When you come back, I’ll hang you up and spank you until your bottom is swollen!" Ning Jiufan gritted his teeth in anger.
+“That little brat! When you come back, I’ll hang you up and spank you ’til your butt turns red!” Ning Jiufan gritted his teeth in anger.
 
-A flying message, like a bird, kept knocking against the window.
+A flying letter suddenly knocked against the window like a bird.
 
-With a thought, Ning Jiufan opened the window and let the flying message in.
+With a sweep of his spirit sense, Ning Jiufan opened the window and let the letter in.
 
-It was a letter from Ning Zhuo.
+It was a message from Ning Zhuo.
 
-"Ancestor, by the time you read this letter, I have probably already run away from home..."
+“Ancestor, by the time you read this letter, I’ve probably already run away from home…”
 
-The letter mainly contained Ning Zhuo's thoughts on the current situation with the Ning family, Fire Persimmon Immortal City, and the ongoing power struggle between the Zhu family and the Meng family.
+The contents of the letter were mostly about Ning Zhuo’s thoughts on the current situation of Fire Persimmon Immortal City, talking about the Ning family as well as the ongoing power struggle between the Zhu family and Meng family.
 
-Ning Zhuo predicted: Soon, there would be a huge conflict between the Ning family, Zhou family, against the Meng family for the positions in Lava Immortal Palace. There was also the Great Purity Palace.
+Ning Zhuo’s prediction was this: Soon, a huge conflict would break out over the positions in the Lava Immortal Palace, with the Ning family and Zhou family facing the Meng family. Oh, there was also the Grand Purity Palace.
 
-The Great Purity Palace took away a group of Zheng family cultivators, many of which held positions in the Immortal Palace.
+The Grand Purity Palace had brought away a group of Zheng family cultivators, many of whom held positions in the Immortal Palace. Ning Zhuo firmly believed that this super sect had yet to give up its designs on the Lava Immortal Palace.
 
-Ning Zhuo believed that this super sect had yet to give up on controlling the Lava Immortal Palace.
+It could be possible to take advantage of this.
 
-This could be something to take advantage of.
+The letter also mentioned that Ning Zhuo had left behind some resources which would soon be delivered to Ning Jiufan. This was meant to compensate and repay the main family for raising him thus far.
 
-Ning Zhuo left behind a batch of supplies, which would be soon delivered to Ning Jiufan. This gesture was meant to compensate and repay the main branch of the family for their nurturing of him.
+In the final part of the letter, Ning Zhuo reminded Ning Jiufan that he hand’t left behind any mechanical constructs, so it would be up to Ning Jiufan to take care of the branch family. Moreover, Ning Zhuo also said that although the Fire-Melting Demon Ape could be subdued through techniques and magical artifacts, such a course of action wasn’t recommended.
 
-Finally, Ning Zhuo reminded Ning Jiufan that upon his departure, he hadn’t left behind any mechanical constructs, so Ning Jiufan would need to take good care of the branch family. Although the Fire Fusion Demon Ape could belaunch attacks through techniques and artifacts, Ning Zhuo strongly advised against it.
+According to him, the correct path was to foster loyalty through a close relationship!
 
-According to his words, fostering loyalty through relationships was the right path!
+After finishing the letter, much of Ning Jiufan’s anger had already disappeared. Sighing to himself, he muttered, “This brat… in the end, he’s still willing to protect the family.
 
-After finishing the letter, much of Ning Jiufan’s anger dissipated. He sighed, "This brat... he’s still willing to protect the family in the end."
+“Not just that, he even dares to meddle in the matters of his ancestor! Hmph! 
 
-"Not only that, but he even dares to meddle in the affairs of his ancestor! Hmph!"
+“Wait… could it be that this letter is also part of his plans? Did he factor in my anger as well?”
 
-"Wait a minute, could it be that this letter was also part of his calculation? Did he factor in my anger as well?"
+Ning Jiufan’s brow furrowed in uncertainty.
 
-Ning Jiufan's face clouded with uncertainty.
+He couldn’t deny that during the struggle over Lava Immortal Palace, Ning Zhuo’s patience, cunning, and other qualities had left a lasting impression on him.
 
-He couldn’t deny that during the struggle for control over Lava Immortal Palace, Ning Zhuo’s patience, cunning, and other qualities had left a lasting impression on him.
-
-To the point that Ning Jiufan, a Golden Core cultivator, was now filled with doubt, suspecting that Ning Zhuo had tricked him again and factored him into the plan.
+It was even to the point that he, a Golden Core cultivator, was now doubting himself, wondering if Ning Zhuo was tricking him again as part of another scheme.
 
 After pondering for a moment, Ning Jiufan exhaled deeply, resolving not to overthink.
 
-"Overthinking is useless."
+“There’s no point in thinking too much.
 
-"Ning Zhuo is inherently good-hearted, loyal to the family. Though occasionally sly, he has his limits. Such talents need to be honed further."
+“Ning Zhuo is inherently righteous and loyal to the family. Although he’s a little sly, he has a bottom line. A talent like this needs to be further honed.”
 
-Ning Jiufan concluded his thoughts about how to solidify Ning Zhuo’s status. Perhaps instead of posthumous titles, they could emphasize Ning Zhuo’s contributions, increasing his loyalty to the family.
+Coming to this conclusion, Ning Jiufan thought about how to further solidify Ning Zhuo’s status in the family. Perhaps when he granted posthumous titles to the sacrificed Ning family members, he could emphasize Ning Zhuo’s contributions to tie him to the family more closely.
 
-"Besides, during the Yin World Ritual, when the family performs its small offerings to communicate with the underworld, you should personally seek higher blessings and protections for Ning Zhuo."
+“Aside from that, when the family offers sacrifices to communicate with the underworld, I should personally beg the ancestors to grant higher blessings to Ning Zhuo.”
 
-At the City Lord's Mansion...
+Meanwhile, at the City Lord’s Mansion…
 
-"Ning Zhuo is gone?"
+“Ning Zhuo is gone? He used a Nascent Soul-level mechanical construct to escape… Did it come from the Lava Immortal Palace?”
 
-"A Nascent Soul-level mechanical construct, using secret techniques to escape... I didn’t understand the Lava Immortal Palace well."
+Reading the report, Fei Si felt a wave of relief sweep through him.
 
-Fei Si, reading the report, felt a wave of relief.
+How could he sleep peacefully with a formidable enemy next to his bed?
 
-How could one allow another to sleep peacefully beside their own bed?
-
-Although Ning Zhuo’s cultivation was weak, his demonstrated battle strength and cunning had left those in the know deeply wary.
+Although Ning Zhuo’s cultivation level was low, his military might and cunning mind had left those in the know deeply wary.
 
 Fei Si was no exception.
 
-Zhu Xuanji departed from Fire Persimmon Immortal City the following afternoon.
+The following afternoon, Zhu Xuanji departed from Fire Persimmon Immortal City as well. As he flew into the sky, he couldn’t help but take one last look.
 
-As he ascended into the sky, he couldn’t help but look back.
+Fire Persimmon Mountain loomed beneath him, its jagged peaks like an awakening giant. After the violent eruption, the cooled lava at the lower portions of the mountain had formed patches of red-and-white ground.
 
-Fire Persimmon Mountain loomed beneath him, its jagged peaks like a giant awakening from sleep.
+The remnants of the lava’s flow resembled massive winding veins, a testament to nature’s fury.
 
-After the violent volcanic eruption, the cooled lava at the mountain’s lower levels had formed a patch of red and white ground, covering the slopes.
+Further up the mountain was the vast sprawl of buildings that made up Fire Persimmon Immortal City. Although some parts were damaged, the city as a whole was relatively intact.
 
-The traces of the lava flow resembled massive veins, twisting and winding, recording nature’s powerful roars.
+Thanks to the citizens’ unity and resolve, the crisis that was the beast tide was ultimately averted.
 
-Further up the mountain was the vast complex of buildings that formed Fire Persimmon Immortal City. Although some parts were damaged, the city remained largely intact.
+Orchards full of persimmon trees could be found at the very base of the mountain. Although the next Fire Persimmon Festival was still some months away, the city’s defensive formation had absorbed a surge of heat from the volcanic eruption, ensuring that the next harvest would be abundant.
 
-The threat of destruction from the demon beast tide had been averted thanks to the citizens’ unity and resolve, and the crisis was ultimately overcome.
+On formerly bare tree branches, large clusters of persimmons now hung. The round, red fruits seemed to represent the hope of Fire Persimmon Immortal City.
 
-At the base of the mountain were small patches of persimmon orchards.
+However, the city’s future outlook seemed as mysterious and uncertain as the heavy clouds hanging over the mountaintop, ambiguous but not necessarily ominous.
 
-Though the next Fire Persimmon Festival was still months away, the volcanic eruption had brought a surge of heat that the city’s protective arrays absorbed, converting it into an abundant persimmon harvest.
+Zhu Xuanji’s eyes flashed with golden light, piercing through the clouds and gazing upon the volcano’s crater, where the Lava Immortal Palace floated atop the molten rock.
 
-Where the tree branches were once bare, clusters of large persimmons now hung, newly formed. The red, round fruits looked like the future hope of Fire Persimmon Immortal City.
+The palace was currently undergoing reconstruction, with Meng Kui personally leading the effort. He used spells to retrieve fragments of the palace that had fallen into the lava, while numerous other cultivators worked alongside him to gradually piece the broken palace back together.
 
-However, the city’s outlook seemed as mysterious and uncertain as the heavy clouds that often shrouded the mountaintop, ambiguous and not necessarily foreboding.
+“Three Schools Supreme Sage…” Zhu Xuanji’s expression revealed a trace of fear.
 
-Zhu Xuanji’s eyes flashed with golden light, piercing through the clouds to see the crater, where the Lava Immortal Palace floated atop the molten rock.
+These days, whenever he had a moment for reflection, his mind involuntarily replayed the scene of that last critical moment, when he turned against Meng Kui and aided Ning Zhuo.
 
-The palace was being rebuilt, with Meng Kui personally leading the effort. He used his magic to retrieve fallen fragments from the lava, while numerous other cultivators worked with him, fully dedicated to piecing the broken palace back together.
+In that moment, as if guided by some invisible force, he had used his Golden Phoenix Mirror to target Meng Kui’s spell hand.
 
-"The Master of the Three Sects..." Zhu Xuanjii showed a trace of fear.
+This singular action had put the Southern Bean royal family completely at odds with Meng Kui, as well as preventing him from dealing a lethal blow to Ning Zhuo.
 
-These days, whenever he had a moment to reflect, his mind involuntarily replayed the scene of him, at the last critical moment, turning against Meng Kui to aid Ning Zhuo.
+“Back then, was it truly my own decision to assist Ning Zhuo? Or… was I already under his influence?”
 
-That moment, he had, as if guided by some unseen force, used his Golden Phoenix Mirror to target Meng Kui’s mighty magic hand.
+In the past few days, Zhu Xuanji recalled that critical moment again and again. His heart was full of unease, feeling as if he had been manipulated like a puppet on strings.
 
-This single action had put the Southern Bean royal family at odds with Meng Kui, directly preventing him from dealing a lethal blow to Ning Zhuo.
+But as time passed and he continued to remember that scene, his suspicions blurred. At times, he was even convinced that it had merely been an instinctive action where his body reacted faster than his mind.
 
-“At that time, was it really my own decision to assist Ning Zhuo? Or... was I already under his influence?”
+After replaying that scene in his mind countless times, Zhu Xuanji found himself doubting everything. As Fire Persimmon Immortal City gradually faded into the distance behind him, he couldn’t help but reach up and touch the top of his head.
 
-After the event, Zhu Xuanji often recalled that pivotal moment, feeling uneasy, as if he had been manipulated like a puppet.
+“That day… was there a Life-Hanging Thread attached to me?”
 
-Yet, as time passed and he revisited those thoughts, his suspicions blurred, making it seem as if his actions had been instinctive—his body reacting faster than his mind.
+He didn’t feel anything.
 
-Now, having replayed the scenario countless times, Zhu Xuanji found himself doubting everything.
+Zhu Xuanji suddenly recalled a past scene from the royal capital. It was a line spoken by the Three Schools Supreme Sage, and it grew increasingly chilling the more he thought about it.
 
-As Fire Persimmon Immortal City gradually faded behind him, Zhu Xuanji couldn't help but reach up, feeling the top of his head.
+At that time, the Southern Bean Empress had just retrieved her golden mirror.
 
-“Was a Life-Hanging thread attached to me that day?”
+The Three Schools Supreme Sage had said, “Fate is fate. Since you’ve taken the golden mirror, I’ll let you guard the Immortal Palace for a while.”
 
-He felt nothing.
-
-The memory of a past scene from the royal capital floated to the surface of his mind. A line spoken by the Master of the Three Sects grew increasingly chilling as he pondered it.
-
-At that time, the Southern Bean Empress had taken the metal mirror.
-
-The Master of the Three Sects had said, "Fate is sealed. Since he has taken the metal mirror, let him protect the Immortal Palace’s legacy for a while."
-
-Strangely, the further Zhu Xuanji flew from Fire Persimmon Mountain, the more peaceful and calm he felt.
+Strangely, the further Zhu Xuanji flew from Fire Persimmon Mountain, the more calm and peaceful he felt.
 
 It was as though a wild beast had escaped a giant trap!
 
-A sense of danger arose.
+A chilling sense of danger arose in his heart.
 
-"Fire Persimmon Immortal City, Lava Immortal Palace... something is definitely off."
+“Fire Persimmon Immortal City, Lava Immortal Palace… something is definitely off.”
 
-A strong intuition emerged, telling Zhu Xuanji to stay as far away from these places as possible.
+Zhu Xuanji had a strong feeling that he should stay as far away from these places as he could.
 
-"And Ning Zhuo too!"
+“And that Ning Zhuo too! I must limit my interactions with him as much as possible. After all, he is the one chosen by the Three Schools Supreme Sage – the child of destiny for the Buddha-Demon War.”
 
-"Limit your interactions with him as much as possible. After all, he’s the chosen one of the Master of the Three Sects—the destined child for the Buddha-Demon conflict."
+After Ning Zhuo, Zhu Xuanji, and the others left, Fire Persimmon Immortal City gradually returned to its peaceful atmosphere.
 
-As Ning Zhuo, Zhu Xuanji, and the others departed, Fire Persimmon Immortal City gradually returned to its peaceful atmosphere.
+With no more scarlet flame monster beasts rampaging and the Lava Immortal Palace having obtained a master, the many visitors also began leaving Fire Persimmon Mountain.
 
-With no more Crimson Flame Beasts rampaging and the Lava Immortal Palace no longer leaderless, the visiting cultivators also began leaving Fire Persimmon Mountain.
+Inside the city, in the Flying Disk Workshop…
 
-In the Flying Disc Workshop of Fire Persimmon Immortal City...
+A gray-haired old man in white robes sat in a mechanical chair, cultivating his magical power.
 
-An elderly man in white robes with graying hair sat in a mechanical chair, cultivating his magic.
-
-The chair floated a few feet off the ground.
+The chair was floating a few feet off the ground.
 
 His eyes were sunken, his breathing deep—it was Chen Cha.
 
-Suddenly, Chen Cha’s body convulsed violently, as if struck by lightning. He abruptly opened his eyes.
+Suddenly, Chen Cha’s body trembled violently, as if he had been struck by lightning. His eyes abruptly flew open.
 
-His pupils were completely gone, leaving only eerie whites.
+Both his pupils and his irises were gone, leaving only an eerie whiteness.
 
-From those whites, wisps of white smoke drifted out.
+And wisps of white smoke slowly drifted out from the whites of those eyes.
 
-Chen Cha seemed like a different person, quickly turning his head and scanning the surroundings before focusing intently on the direction of Lava Immortal Palace.
+Chen Cha seemed like a completely different person as he swung his head around, scanning his surroundings before focusing in on the direction of the Lava Immortal Palace.
 
-His fingers moved slowly, leaving afterimages in the air.
+His fingers moved slowly but surely, leaving mystical afterimages in the air.
 
-As he calculated, the white smoke in his eyes grew thicker, giving Chen Cha a misty, ethereal appearance, like an immortal shrouded in fog.
+As he calculated, the white smoke coming from his eyes grew thicker. Right now, Chen Cha had an ethereal visage, like an immortal shrouded in fog.
 
-"Zhu Xuanji should have stayed to guard the Immortal Palace. Why did he leave?"
+“Zhu Xuanji should have stayed to guard the Immortal Palace. Why did he leave?
 
-"And Meng Kui too! He’s gone as well!"
+“And Meng Chong too! He’s gone!
 
-"This situation was orchestrated by the Master of the Three Sects. Logically, there shouldn’t have been any mistakes. The Immortal Palace used the Life Thread Divine Ability. It should’ve been completely foolproof! But now the situation has turned out like this? Who could be behind this?"
+“This whole situation was engineered by the Three Schools Supreme Sage. Logically speaking, there shouldn’t be any room for mistakes. The Immortal Palace had the Life-Hanging Thread divine ability, it should have been completely foolproof! How come thigns have turned out like this? Just who is behind all this?
 
-"Now that this is ruined, most of my plans in the Southern Bean Kingdom are ruined as well. What a headache. How can this be fixed?"
+“Now that this setup is ruined, most of my plans for the Southern Bean Kingdom will be ruined as well. What a headache. How can I fix this?”
 
-After completing his calculations, Chen Cha looked distressed.
+After finishing his calculations, Chen Cha seemed distressed.
 
-"Could it have been Ning Zhuo who ruined this plan?"
+“Was it Ning Zhuo? He was the one who messed everything up?
 
-"For now, the top priority is to find Zhu Xuanji and Ning Zhuo to find the root of the problem."
+“For now, my top priority is locating Zhu Xuanji and Ning Zhuo to find the root of the problem.”
 
-After this thought, Chen Cha slowly closed his eyes.
+Thinking to this point, Chen Cha slowly closed his eyes.
 
-The white smoke filling the room quickly dissipated.
+The white smoke filling the room quickly disappeared.
 
-His breathing returned to normal as he resumed his cultivation.
+His breathing returned to normal, and he resumed his cultivation.
 
-After one incense stick’s time, Chen Cha opened his eyes again, his pupils restored. His magical power was fully replenished, and he began studying the mechanical texts.
+After an incense stick’s worth of time, Chen Cha opened his eyes once again. This time, his irises and pupils had returned. His magical power fully replenished, Chen Cha began studying some books on mechanical arts.
 
-These texts had been specially arranged by Ning Zhuo for delivery to Chen Cha before he left the city.
+Before leaving the city, Ning Zhuo had specifically arranged for these books to be delivered to Chen Cha.
 
-"Meeting Ning Zhuo was my good fortune," Chen Cha thought, his heart filled with gratitude as he absorbed the knowledge from the jade slip.
+“Meeting Ning Zhuo was my good fortune,” Chen Cha thought. His heart was filled with gratitude as he rapidly absorbed the knowledge in the books.
 
 He seemed completely unaware of the strange incident that had just occurred, with no memory of it whatsoever!
